@@ -1,3 +1,1 @@
-<p align="center">
-  ![](https://komarev.com/ghpvc/?username=your-github-username&color=dc143c)
-<p></p>
+<p align=center> <img src=https://komarev.com/ghpvc/?username=villicrow&color=4BB79E&style=flat-square&label=jajaaan>
