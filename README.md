@@ -1,4 +1,4 @@
-<p align=center> <img src="https://file.garden/ZlS7CzBYblwbIgQe/aaaaaaaaaaaa" alt="art of Clancy by lycosoid">  </p> <p align=center> <img src=https://komarev.com/ghpvc/?username=seizingcrown&color=7BA0C4&style=flat-square&label=Neoplasm> </p>
+<p align=center> <img src="https://file.garden/ZlS7CzBYblwbIgQe/aaaaaaaaaaaa" alt="art of Clancy by lycosoid">  </p> <p align=center> <img src=https://komarev.com/ghpvc/?username=seizedcrown&color=742024&style=flat-square&label=Sahlo Folina> </p>
 <p></p>
 <p align=center> HELLO !! HII !! i'm vill or pav , but feel free to call me any name ever , i don't mind!!</p>
 <p align=center> I LOVE CLANCY . all art by lycosoid on twitter</p>
