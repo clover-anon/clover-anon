@@ -1,7 +1,5 @@
-<p align=center> <img src="https://file.garden/ZlS7CzBYblwbIgQe/itsovermyhead.png" alt="art of Clancy by lycosoid">  </p> <p align=center> <img src=https://komarev.com/ghpvc/?username=seizedcrown&color=742024&style=flat-square&label=Sahlo Folina> </p>
+<p align=center> <img src="https://file.garden/ZlS7CzBYblwbIgQe/blur_edges.png" alt="art of Clancy by lycosoid">  </p> <p align=center> <img src=https://komarev.com/ghpvc/?username=seizedcrown&color=8ca374&style=flat-square&label=🍀> </p>
 <p></p>
-<p align=center> HELLO !! HII !! i'm vill or pav , but feel free to call me any name ever , i don't mind!!</p>
-<p align=center> I LOVE CLANCY . art cr: lycosoid@twt, herylonboard@twt</p>
-<p align="center"> <a href="https://rentry.co/rambling">rentry</a> ✧ <a href="https://coil.atabook.org/">atabook</a> ✧ <a href="https://spacehey.com/redecorate">spacehey</a> ✧ <a href="https://twitter.com/villicrow">twitter</a></p>
-<p align="center"> ═══════════════════════════════════ </p>
-<p align=center> <img src="https://file.garden/ZlS7CzBYblwbIgQe/tumblr_50804b46a0085dfbef52e1ca6d2c0d42_7bc4fc7f_100.png" alt="i love my fictional other stamp with clancy on it"> </p>
+<p align=center> seal / clover ! i sign atabooks because i am too shy to do it as myself LMFAO<br>i go by they/them and im nonbinary!!!!!
+<p align=center> ═══════════════════════════════════ </p>
+<p align=center> <img src="https://64.media.tumblr.com/3a0dc19fa5150e2f7e63353fad6e5e76/479294ab3aa4c825-0a/s100x200/232ad7ca1517cbefee5469da872a6b548c1b9431.gifv" alt="a stamp of minori hanasato that fades nito a seal"> </p>
