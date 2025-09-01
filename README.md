@@ -1,4 +1,4 @@
-<p align=center> <img src="https://file.garden/ZlS7CzBYblwbIgQe/blur_edges.png" alt="art of Clancy by lycosoid">  </p> <p align=center> <img src=https://komarev.com/ghpvc/?username=seizedcrown&color=8ca374&style=flat-square&label=🍀> </p>
+<p align=center> <img src="https://file.garden/ZlS7CzBYblwbIgQe/blur_edges.png" alt="art of minori hanasato">  </p> <p align=center> <img src=https://komarev.com/ghpvc/?username=seizedcrown&color=8ca374&style=flat-square&label=🍀> </p>
 <p></p>
 <p align=center> seal / clover ! i sign atabooks because i am too shy to do it as myself LMFAO<br>i go by they/them and im nonbinary!!!!!
 <p align=center> ═══════════════════════════════════ </p>
